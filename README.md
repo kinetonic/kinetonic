@@ -8,7 +8,7 @@
 
 💞️ I’m looking to collaborate on innovative projects that require top-notch web, mobile, and AI expertise.
 
-📫 How to reach me: Connect with us on [LinkedIn](https://www.linkedin.com/company/kinetonic) or visit our website [kinetonic.tn](https://kinetonic.tn)
+📫 How to reach me: Connect with us on [LinkedIn](https://www.linkedin.com/company/kinetonic-it) or visit our website [kinetonic.tn](https://kinetonic.tn)
 
 😄 Pronouns: We / Us
 
